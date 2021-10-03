@@ -2,10 +2,10 @@ free fire free diamond link - free diamonds in free fire
 ~~~~~~~~~~~~
 [[Updated Oktober 02, 2021]] free fire free diamond link free diamond free diamonds in free fire free diamonds for free fire free diamonds free fire diamond hack link free fire free diamond diamond hack ff free diamond
 
-  `CLICK HERE Free Fire Hack.
+  `CLICK HERE FREE FIRE HACK DIAMOND
   <https://www.mychaelknight.com/free-fire>`_
 
-  `CLICK HERE Free Fire Hack.
+  `CLICK HERE FREE FIRE HACK DIAMOND
   <https://www.mychaelknight.com/free-fire>`_
 
 
